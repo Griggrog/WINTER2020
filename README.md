@@ -29,7 +29,6 @@ Colin Rabago (12:30pm)
 Inyong Lee (3:30pm)
 Yixiang Zhang (12:30pm)
 Lyu Zhang (3:30pm)
-Matt Matsuo (12:30pm)
+Matthew Matsuo (12:30pm)
 Gregory Chang (3:30pm)
 Zhaoying Chen (12:30pm)
-Gregory Chang
